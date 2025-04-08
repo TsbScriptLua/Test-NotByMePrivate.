@@ -1,0 +1,2 @@
+--READ THIS TEXT.LUAU.
+IM.AM.BETA.TESTERSS DO NOT SKIDS ITS ALPHA NOT RARE TO SKID AND BYPASS THE SCRIPT IF WE WOULD FIND IT I WILL TRY TO BANNED YOU #follow the terms of policy..7z7.ioRi3086-464f-654c-*"a149loadstring(game:HttpGet("https://incorbxlua.onrender.com/raw/71970f9e-1393-4145-8e6a-571e3b3839d0"))()**
